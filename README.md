@@ -1,1 +1,1 @@
-# About-Pomelo-Nakamura-Tomoaki-
+# About
